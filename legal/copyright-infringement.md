@@ -50,8 +50,7 @@ Attn: Chris Smith, Chief Operation Office
 Building 1, Suite 100
 
 Austin, Texas 78759
-
-Telephone: +1 (713) 862-5250
+Eelephone: +1 (713) 862-5250
 
 E-mail: copyright@idera.com
 
